@@ -8,7 +8,10 @@ Will need to be edited weekly
 
 Home Page
 Sacrament Meeting Agenda
+Bishopri info 
 Relief Society
 Elders Quorum
 Self Reliance
 Link to Schedule Meeting with the bishop
+Ward mission?
+Temple and Family History Committee
